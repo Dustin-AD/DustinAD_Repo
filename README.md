@@ -7,3 +7,5 @@ Oishi desi ka?
 Making sure I got the hang of this.
 
 Alright, running through this again.
+
+Gohan to mizu, kudasai.
